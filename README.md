@@ -1,4 +1,4 @@
-# EyesofdeLord.github.io
+# eyesofdelord.github.io
 
 *Lander Bien S. Hugo*
 
