@@ -1,4 +1,4 @@
-# EyesofdaLord
+# EyesofdeLord
 
 *Lander Bien S. Hugo*
 
