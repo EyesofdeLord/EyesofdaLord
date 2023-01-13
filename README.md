@@ -1,6 +1,6 @@
 # eyesofdelord.github.io
 
-# H1 Record of Ragnarok, Adam, the first man
+# Record of Ragnarok, Adam, the first man
 
 *Lander Bien S. Hugo*
 
