@@ -14,4 +14,4 @@ Adam is best boi
 | ----------- | ----------- | ----------- | ----------- | ----------- | -----------| ----------- | ----------- |
 | Gods win | Gods win | Humans win | Humans win | Gods win | Humans win | Humans win | Ongoing |
 
-[Record of Ragnarok Best Moment Adam (Do you need a reason!)](hhttps://youtu.be/NEnvFs3kQk0)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NEnvFs3kQk0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
