@@ -40,7 +40,7 @@ Stamina: At least Very High, likely higher (Capable of fighting even after excee
 
 Range: At least Extended Melee
 
+![image](https://user-images.githubusercontent.com/122418768/212820094-1bf4d0db-0a4f-4b0a-a0fb-b62b80bd9840.png)
+
 Weakness: Despite its seemingly unbeatable nature, the Eyes of the Lord do have their limits. The strength and power of an opponent's attacks appear to correspond to the amount of strain a user's nervous system is placed under. Brunhilde's goes on to further elaborate, stating that any of Zeus's attacks in his Adamas state would normally be an unavoidable one-hit kill. For Adam to see through these techniques, he would be placing both his eyes and nervous system under unimaginable amounts of stress.
 (made from: Adam (Record of Ragnarok) | Top-Strongest Wikia - https://topstrongest.fandom.com/wiki/Adam_(Record_of_Ragnarok)#:~:text=Adam%20is%20Humanity's%20representative%20in,and%20likeness%20of%20the%20Gods.)
-
-![image](https://user-images.githubusercontent.com/122418768/212820094-1bf4d0db-0a4f-4b0a-a0fb-b62b80bd9840.png)
