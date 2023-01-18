@@ -2,6 +2,9 @@
 
 # Record of Ragnarok, Adam, the first man
 
+![image](https://user-images.githubusercontent.com/122418768/213067210-7c42a102-014a-4905-bce0-cd98a0b5b24c.png)
+
+
 *Lander Bien S. Hugo*
 
 **LG 9 Brebeuf**
